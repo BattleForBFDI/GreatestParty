@@ -1,4 +1,11 @@
 <p align="center">
+  <img src= https://github.com/BattleForBFDI/GreatestParty/blob/main/tumblr-34e608963af644add79e913e4d3ff96f-49243d0c-250.png?raw=true
+</p>
+  
+  
+  
+  
+  <p align="center">
   <img src= https://github.com/BattleForBFDI/GreatestParty/blob/main/xjamkn.png?raw=true />
 </p>
   
