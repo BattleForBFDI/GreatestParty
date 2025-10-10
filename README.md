@@ -1,10 +1,6 @@
 <p align="center">
   <img src= https://github.com/BattleForBFDI/GreatestParty/blob/main/tumblr-34e608963af644add79e913e4d3ff96f-49243d0c-250.png?raw=true
-</p>
-  
-  
-  
-  
+</p>  
   <p align="center">
   <img src= https://github.com/BattleForBFDI/GreatestParty/blob/main/xjamkn.png?raw=true />
 </p>
@@ -21,4 +17,7 @@ INFOOO0    ;;   HAIIII IM LUCKYYY  any pronouns but I pref she/they !  psst,,  i
 
 <p align="center">
 <img src= https://github.com/BattleForBFDI/GreatestParty/blob/main/fikfc9.png?raw=true />
+</p>
+<p align="center">
+<img src= https://github.com/BattleForBFDI/GreatestParty/blob/main/tumblr-52bc49fe120af4f9e4d08c6b218f6cc4-8a6c6273-250.png?raw=true />
 </p>
