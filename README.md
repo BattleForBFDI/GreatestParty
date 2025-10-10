@@ -8,7 +8,7 @@ INFOOO0    ;;   HAIIII IM LUCKYYY  any pronouns but I pref she/they !  psst,,  i
 
 
 <p align="center">
-  BYIIIIIII   ;;   AS YOU KNOW IM 13! ! ! ! !   no weirdos plz ill be a sad clover....  Basic Dni ! !  under 10 y/o I prefer avoiding mememe......  IM ALSO HYPERSENSITIVE!!!  dont be mean or ill start bawling and rolling around   I kin  Unikitty, Werewolf cookie, Dandy , Melanie  , Wagyu  ,  and Fally ! !  ( kfc c..c... )   I joke about my own trauma  ! ! I do tend to overshare sometimes tooooo waa
+  BYIIIIIII   ;;   AS YOU KNOW IM 13! ! ! ! !   no weirdos plz ill be a sad clover....  Basic Dni ! !  under 10 y/o I prefer avoiding mememe......  IM ALSO HYPERSENSITIVE!!!  dont be mean or ill start bawling and rolling around   I kin  Unikitty, Werewolf cookie, Dandy , Melanie  , Wagyu  ,  and Fally ! !  ( kfc c..c... )   I joke about my own trauma  ! ! I do tend to overshare sometimes tooooo waa    THINK BEFORE YOU SAY SOMETHING!!! is it TRUTHFUL? is it HELPFUL? is it INSPIRING? is it NECESSARY? is it KIND? BE COMPASSIONATE!!!!!!!
 
 <p align="center">
 <img src= https://github.com/BattleForBFDI/GreatestParty/blob/main/fikfc9.png?raw=true />
