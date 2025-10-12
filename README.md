@@ -20,7 +20,7 @@ INFOOO0    ;;   HAIIII IM LUCKYYY  any pronouns but I pref she/they !  psst,,  i
 </p>
 
 <p align="center">
-EXTRAAAA   ;;    I yume elder faeire  ! ! ! ! but donut worri im ok with doubles
+EXTRAAAA   ;;    I yume elder faeire  ! ! ! ! but donut worri im ok with doubles   MY BDAY IS ALSO JUNE 7 AHHAHA IM BORN ON 6/7 ! ! ! 
 
 <p align="center">
 <img src= https://github.com/BattleForBFDI/GreatestParty/blob/main/fikfc9.png?raw=true />
