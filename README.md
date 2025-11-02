@@ -11,10 +11,3 @@ INFOOO0    ;;   HAIIII IM LUCKYYY  any pronouns but I pref she/they !  psst,,  i
 
 <p align="center">
 EXTRAAAA   ;;    I yume elder faeire  ! ! ! ! but donut worri im ok with doubles   MY BDAY IS ALSO JUNE 7 AHHAHA IM BORN ON 6/7 ! ! !    MY WIFEYS /p  ::   Zei, Mach, Dottie , Emmy , Scribble  , Meryl  , EF , and Cami  ! !   MY KIDSDSSDSSSSSSS ::  Cheetose, Zarrie , (Sun) dumflowest , Ink / Looey, Mercurial Knight cookie #_^ YOU GUYS ARE SOSOSOO PRECIOUS MWAAAA/PPPPPP   AND ALL MY FRIENDS I LOAF YOU ALL 2!!!!!!!!!!!!!!!!!!
-
-<p align="center">
-<img src= https://github.com/BattleForBFDI/GreatestParty/blob/main/fikfc9.png?raw=true />
-</p>
-<p align="center">
-<img src= https://github.com/BattleForBFDI/GreatestParty/blob/main/tumblr-52bc49fe120af4f9e4d08c6b218f6cc4-8a6c6273-250.png?raw=true />
-</p>
