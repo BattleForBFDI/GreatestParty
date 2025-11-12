@@ -1,3 +1,6 @@
+<p align="center">
+  might remake? idk
+</p>
 
 <p align="center">
 INFOOO0    ;;   HAIIII IM LUCKYYY  any pronouns but I pref she/they !  psst,,  im also 13.....   I LOAFFFF SITTING AND TALKING TO PEOPLE!!!!!! DONT BE SHY LALALAL   im semi afk alot but I still respond mostly!  I have about 8 cuddle buddies and 5 moots I dont mind more lelel #_^   Im slow with typing sometimes and also a unknown typing quirk? IDK        ALSO I LOAF my friends!!   Brandy , Ink , Scribble  , Slasher  , Zarrie  , and last but not least Dottie!!  I have tons more that i loaf just as much , but I cant mention every name waaa   I LOVVEVEVE CUDDLING WITH PEOPLE AND SOCIALIZING!! but I can be shy waa    C+H I LOAF! 
