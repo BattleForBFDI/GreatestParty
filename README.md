@@ -11,5 +11,5 @@
 
    im usually in a cosplay/kinsona  and usually by obj area , phighting and forsaken + a little of dod  
 
-   since im a taph fictkin , when i go nonverb i do use emojis   its a rare occurence but it still will happen  im  really cool ok  bye
+   since im a taph fictkin , when i go non or semiverb i do use emojis 2 speak  its a rare occurence but it still will happen  also im  really cool ok  bye
 </p>
