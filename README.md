@@ -1,3 +1,6 @@
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=BattleForBFDI)
+
+
 <p align="center">
           hoi guys itds me lucky 
    
