@@ -10,7 +10,7 @@
    
    im usually just semi-afk grinding playt or something    im mobile so dont expect me to ever have offtab in my name
 
-   i have a ton of fandoms    mains   :::  dw, movieunleashers, bfdi ( if u cant tell,, ) , forsaken ( I dont support plzz ) , dod , and phighting!! i like a ton of args my faves r ihasafacelulz recallahollowheart and itzskeetplayz      IM SUPER AWESOME  my more niche ones are bunny tycoon, splatoon ( whoa rhyme ) and blues clues..... im widderally magenta
+   i have a ton of fandoms    mains   :::  dw, movieunleashers, bfdi ( if u cant tell,, ) , forsaken ( I dont support plzz ) , dod , and phighting!! i like a ton of args my faves r ihasafacelulz recallahollowheart and itzskeetplayz      IM SUPER AWESOME MOOT ME !    !  my more niche ones are bunny tycoon, splatoon ( whoa rhyme ) and blues clues..... im widderally magenta
 
    im usually in a cosplay/kinsona  and usually by obj area , phighting and forsaken + a little of dod  
 
