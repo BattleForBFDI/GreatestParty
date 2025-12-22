@@ -19,7 +19,9 @@ im usually just semi-afk grinding playt or something im mobile so dont expect me
 
 i have a ton of fandoms mains ::: dw, movieunleashers, bfdi ( if u cant tell,, ) , forsaken ( I dont support plzz ) , dod , and phighting!! i like a ton of args but i cant name them all my faves r ihasafacelulz recallahollowheart and itzskeetplayz IM SUPER AWESOME MOOT ME ! ! my more niche ones are bunny tycoon, splatoon ( whoa rhyme ) and blues clues..... im widderally magenta
 
-im usually in a cosplay/kinsona and usually by obj area , phighting and forsaken + a little of dod
+im usually in a cosplay/kinsona and usually by obj area , phighting and forsaken + a little of dod + homestuck
 
 since im a taph fictkin , when i go non or semiverb i do use emojis 2 speak its a rare occurence but it still will happen also im really cool ok bye
+
+proud yume of firebrand since last years October <3
 </p>
