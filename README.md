@@ -1,4 +1,5 @@
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=BattleForBFDI)
+![Clovers](https://komarev.com/ghpvc/?username=BattleForBFDI&color=brightgreen)
+
 
 
 <p align="center">
