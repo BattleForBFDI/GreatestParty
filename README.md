@@ -9,7 +9,7 @@
 </p>
 
 <p align="center">
-hoi guys itds me lucky
+hoi guys itds me lucky   they/them pref idgaf tho
 
 im always fine with c*h im a lonely guy unless im like. super quiet and have dni in my name then dint come by me well uc an but yk
 
