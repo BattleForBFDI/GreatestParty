@@ -13,7 +13,7 @@ hoi guys itds me lucky   they/them pref idgaf tho
 
 im always fine with c*h im a lonely guy unless im like. super quiet/seem upset and have dni in my name then dint come by me well uc an but yk
 
-im 13 sooo dont b weird wit me ok>>? ok? ok ++++ basic dni #.> i love all mi partners #_^ gues how many i hav..e HAHA ITS FOUR i lov them all bleee
+im 13 sooo dont b weird wit me ok>>? ok? ok ++++ basic dni, but if ur friends with @/Starscreamr dni , soz #.> i love all mi partners #_^ gues how many i hav..e HAHA ITS FOUR i lov them all bleee
 
 im usually just semi-afk grinding playt or something im mobile so dont expect me to ever have offtab in my name
 
