@@ -5,7 +5,7 @@
    </p>
    
   <p align="center">
-     im a secret magical girl who loves floppies and hugz, ,, ,   ʚ🩷ɞ 
+     im a secret magical they/them who loves floppies and hugz, ,, ,   ʚ🩷ɞ 
 </p>
 
 <p align="center">
@@ -15,7 +15,7 @@ im always fine with c*h im a lonely guy unless im like. super quiet/seem upset a
 
 im 13 sooo dont b weird wit me ok>>? ok? ok ++++ basic dni, but if ur friends with @/Starscreamr dni , soz #.> i love all mi partners #_^ gues how many i hav..e HAHA ITS FOUR i lov them all bleee
 
-im usually just semi-afk grinding playt or something im mobile so dont expect me to ever have offtab in my name
+im usually just semi-afk grinding playt or something im mobile so dont expect me to ever have offtab in my name BUt i am split tabs when i am safk, so feel free 2 talk!
 
 i have a ton of fandoms mains ::: dw, movieunleashers, bfdi ( if u cant tell,, ) , forsaken ( I dont support plzz ) , dod , and phighting!! i like a ton of args but i cant name them all my faves r ihasafacelulz recallahollowheart and itzskeetplayz IM SUPER AWESOME MOOT ME ! ! my more niche ones are bunny tycoon, splatoon ( whoa rhyme ) and blues clues..... im widderally magenta
 
