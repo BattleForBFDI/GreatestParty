@@ -5,7 +5,7 @@
    </p>
    
   <p align="center">
-     im a secret magical they/them who loves floppies and hugz, ,, ,   ʚ🩷ɞ 
+    " why are they aviat9rs and 9n life supp9rt "
 </p>
 
 <p align="center">
