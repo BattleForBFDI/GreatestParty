@@ -5,7 +5,7 @@
    </p>
    
   <p align="center">
-    " why are they aviat9rs and 9n life supp9rt "
+    " why are they aviators and 9n life support "
 </p>
 
 <p align="center">
