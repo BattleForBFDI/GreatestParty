@@ -13,5 +13,5 @@ hoi guys itds me lucky   they/them pref idgaf tho
 
 Just go to rentry for our dni and some more info atp,  ANYWAYS    hiii hii guys hi   some other stuff is some fandoms we really liek! ! !   ; starters ( MU ) , P! , BFDI , DW ,  PSX  ,  and some other stuff   + tanks for the credit card scrib u da goat  ! !
 
-proud yume of firebrand since last years October <3
+proud yume of firebrand since 2024's October <3
 </p>
